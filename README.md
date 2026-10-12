@@ -1,0 +1,2 @@
+# linkplntogel.com
+linkplntogel.com
